@@ -8,7 +8,7 @@ Meu nome é Henrique
 
   ### Você pode entrar em contato comigo 📫
   ### Email: henriqueehey@gmail.com
-  ### instagram: _rick_hey
+  ### instagram: https://www.instagram.com/_rick_hey/
   ### whatsApp: (41)99635-8352 
 
 
